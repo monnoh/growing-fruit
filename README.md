@@ -53,3 +53,9 @@ https://www.deviantart.com/inthemoodforfruits/about
 https://linktr.ee/inthemoodforfruits
 
 https://unsplash.com/@inthemoodforfruits
+
+https://www.imdb.com/user/ur156304884/
+
+https://www.twitch.tv/monnoh35/about
+
+https://edex.adobe.com/community/member/EsWDXK0AT
