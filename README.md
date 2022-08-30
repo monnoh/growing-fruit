@@ -46,3 +46,10 @@ https://myanimelist.net/profile/monnoh
 
 https://issuu.com/inthemoodforfruits
 
+https://www.flickr.com/people/196414355@N06/
+
+https://www.deviantart.com/inthemoodforfruits/about
+
+https://linktr.ee/inthemoodforfruits
+
+https://unsplash.com/@inthemoodforfruits
