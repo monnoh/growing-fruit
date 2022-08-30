@@ -36,5 +36,13 @@ https://www.discogs.com/user/inthemoodforfruits
 
 https://www.behance.net/lievenvekemans
 
+https://loop.frontiersin.org/people/1983399/bio
 
+https://www.edocr.com/user/monnoh35
+
+https://www.wantedly.com/id/lieven_vekemans
+
+https://myanimelist.net/profile/monnoh
+
+https://issuu.com/inthemoodforfruits
 
