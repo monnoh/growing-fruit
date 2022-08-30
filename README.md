@@ -26,3 +26,9 @@ https://www.indiegogo.com/individuals/30155246
 
 https://giphy.com/channel/inthemoodforfruits
 
+https://stocktwits.com/inthemoodforfruits
+
+https://hub.docker.com/r/inthemoodforfruits/growingfruit
+
+https://www.wattpad.com/user/inthemoodforfruits
+
